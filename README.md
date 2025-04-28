@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sub0tron
 - 👀 I’m interested in robots
-- 🌱 I’m currently learning enegineering
+- 🌱 I’m currently a student in highschool
 - 💞️ I’m looking to collaborate on no idea honstely
 - 📫 How to reach me my email
 - 😄 Pronouns: im a man
